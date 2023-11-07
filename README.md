@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DossyWossy
+- 👋 Hi, I’m Dosah
 - 👀 I’m interested in big booty bitches
 - 🌱 I’m currently learning how to pull big booty bitches
 - 💞️ I’m looking to collaborate on big booty bitches
